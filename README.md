@@ -1,1 +1,0 @@
-# mybookheroes-blank
